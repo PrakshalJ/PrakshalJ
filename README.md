@@ -41,6 +41,9 @@
 
 
 ##  🤝🏻 &nbsp;Connect with Me
+https://www.instagram.com/prakkshal/
+https://in.linkedin.com/in/prakshal-jain-a327a0148
+
 
 
 
